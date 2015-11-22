@@ -1,0 +1,2 @@
+# CPI
+Conscious Passive Income
